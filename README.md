@@ -1,2 +1,2 @@
 # EAIDesign
-An AI classification column.
+EAI艺术站安卓版下载
